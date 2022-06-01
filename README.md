@@ -1,2 +1,5 @@
-# allstar-renovation-cheat-codes-gems-hacks
-Allstar Renovation Cheat Codes unlimited gems Hacks guide
+# Allstar Renovation Cheat Codes unlimited gems Hacks guide
+
+Allstar Renovation Cheat Codes unlimited gems Hacks guide - However, it is better to use him strategically, especially in the late stage of the game, which will be more advantageous. If you have only one or no remaining troops, there is no defect in calling him. Speed is a factor to be considered in every race. Although the high cost cards may make you face the risk of not even being able to enter the battlefield, if you successfully summon them and carefully plan survival strategies until they appear, you can lead to an easy road to victory. Belphegor's 8 points of consumption plus 3 points of purple mana make him look difficult to deal with, but his abilities cannot be obtained at a lower cost. Once summoned, the opponent must pay an additional $1 to summon the field minion. What's more, whenever belphegor attacks, you can restore any field minion card from your trash can to the wild. The summoning effect of a resurrected minion does not trigger, but the only other limitation is that you cannot resurrect another belfigo card.
+
+<a href="https://windmod.icu/allstar-renovation/">go now</a>
